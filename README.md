@@ -8,3 +8,4 @@
 
 > **Revyn** : Major update brewing! Exciting times ahead, stay with us!
 
+> **Abiel** : Hold tight! A game-changer is about to be revealed!
